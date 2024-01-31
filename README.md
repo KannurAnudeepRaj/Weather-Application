@@ -1,6 +1,6 @@
-# Anudeep Raj Kannur
+# quA.Mik
 
-Greetings! 👋 I'm Anudeep Raj Kannur, a versatile creative mind from India 🇮🇳. Welcome to my coding haven where art meets technology.
+Heya Folks! 👋 I'm quA.Mik, a versatile creative mind from India 🇮🇳. Welcome to my coding haven where art meets technology.
 
 ## About Me
 - 🎨 Animator | 🎭 Artist | 💻 Code Creator

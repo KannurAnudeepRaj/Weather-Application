@@ -4,7 +4,7 @@ Greetings! 👋 I'm Anudeep Raj Kannur, a versatile creative mind from India �
 
 ## About Me
 - 🎨 Animator | 🎭 Artist | 💻 Code Creator
-- 📚 Founder of [@ProsePinnacle](https://www.instagram.com/prosepinnacle/) - Nurturing writers to new heights.
+- 📚 Founder of [@Prose.Pinnacle](https://www.instagram.com/prose.pinnacle/) - Nurturing writers to new heights.
 
 ## Today's Date: 31-01-2024
 
